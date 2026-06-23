@@ -36,7 +36,7 @@ $\color{rgb(183, 227, 156)}{\textsf{but}}$ $\color{rgb(148, 217, 182)}{\textsf{i
 
 <br>
 
-@theholy0ne ㅤ@reignfrost (HI!)ㅤ @sacrificialgrl ㅤ@avenueq (hi avenpoo)ㅤㅤ@dqnoㅤㅤ@PorphyroRoyalㅤ@jellykatssㅤㅤ@xcryingchild (pet dog)ㅤ@constrz
+[@theholy0ne](https://github.com/theholy0ne) ㅤ[@reignfrost](https://github.com/reignfrost) (HI!)ㅤ [@sacrificialgrl](https://github.com/sacrificialgrl)ㅤ[@avenueq](https://github.com/avenueq) (hi avenpoo)ㅤㅤ[@dqno](https://github.com/dqno)ㅤㅤ[@PorphyroRoyal](https://PorphyroRoyal)ㅤ[@jellykatss](https://jellykatss)ㅤ[@xcryingchild](https://xcryingchild) (pet dog)ㅤ[@constrz](https://constrz)
 
 </details>
 
