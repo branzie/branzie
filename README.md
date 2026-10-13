@@ -36,8 +36,7 @@ $\color{rgb(183, 227, 156)}{\textsf{but}}$ $\color{rgb(148, 217, 182)}{\textsf{i
 
 <br>
 
-[@theholy0ne](https://github.com/theholy0ne) ㅤ[@reignfrost](https://github.com/reignfrost) (THE person ever o_o)ㅤ [@sacrificialgrl](https://github.com/sacrificialgrl)ㅤ[@avenueq](https://github.com/avenueq) (hi avenpoo)ㅤㅤ[@dqno](https://github.com/dqno)ㅤㅤ[@PorphyroRoyal](https://github.com/PorphyroRoyal)ㅤ[@jellykatss](https://github.com/jellykatss)ㅤ[@xcryingchild](https://github.com/xcryingchild) (pet dog)ㅤ[@constrz](https://github.com/constrz) all green names Hi!
-<img src="https://media.discordapp.net/attachments/1498302411473944738/1551354228453146654/image.png?ex=6ab1aab6&is=6ab05936&hm=beb94772ded2d4379521ebcbac9602dc1840c0ea5a22705eebce91d2b08b8c5d&=&format=webp&quality=lossless" width="100" alt="Alt Text">
+[@theholy0ne](https://github.com/theholy0ne) ㅤ[@reignfrost](https://github.com/reignfrost) (THE person ever o_o)ㅤ [@sacrificialgrl](https://github.com/sacrificialgrl)ㅤ[@avenueq](https://github.com/avenueq) (hi avenpoo)ㅤㅤ[@dqno](https://github.com/dqno)ㅤㅤ[@PorphyroRoyal](https://github.com/PorphyroRoyal)ㅤ[@jellykatss](https://github.com/jellykatss)ㅤ[@xcryingchild](https://github.com/xcryingchild) (pet dog)ㅤ[@constrz](https://github.com/constrz)ㅤ[@ogchaoss](https://github.com/ogchaoss) all green names Hi!
 </p>
 
 </details>
