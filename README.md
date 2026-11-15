@@ -17,7 +17,7 @@
 
 <br>
 
-[@theholy0ne](https://github.com/theholy0ne) ㅤ[@reignfrost](https://github.com/reignfrost) (THE person ever o_o)ㅤ [@sacrificialgrl](https://github.com/sacrificialgrl)ㅤ[@avenueq](https://github.com/avenueq) (hi avenpoo)ㅤㅤ[@dqno](https://github.com/dqno)ㅤㅤ[@PorphyroRoyal](https://github.com/PorphyroRoyal)ㅤ[@jellykatss](https://github.com/jellykatss)ㅤ[@xcryingchild](https://github.com/xcryingchild) (pet dog)ㅤ[@constrz](https://github.com/constrz)ㅤ[@ogchaoss](https://github.com/ogchaoss) all green names Hi!
+[@theholy0ne](https://github.com/theholy0ne) ㅤ[@reignfrost](https://github.com/reignfrost)ㅤ [@sacrificialgrl](https://github.com/sacrificialgrl)ㅤ[@avenueq](https://github.com/avenueq)ㅤㅤ[@dqno](https://github.com/dqno)ㅤㅤ[@PorphyroRoyal](https://github.com/PorphyroRoyal)ㅤ[@jellykatss](https://github.com/jellykatss)ㅤ[@xcryingchild](https://github.com/xcryingchild)ㅤ[@constrz](https://github.com/constrz)ㅤ[@ogchaoss](https://github.com/ogchaoss) all green names Hi!
 </p>
 
 </details>
